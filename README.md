@@ -1,5 +1,4 @@
 # hello_world
 Обучение
 
-fjkdasfjkdsajkdsmnfm,dsanads dfskmjdsfa dsfmfdsnmdsanf dmsfnm,asd
-Thanks for watching
+но ведь она не твоя как глоток вина
